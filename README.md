@@ -1,0 +1,1 @@
+# absolute-real-estate-responsive-html-template
